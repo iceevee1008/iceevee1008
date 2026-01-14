@@ -1,4 +1,2 @@
 # About Me
-hi im iceevee1008(IcEe). 
-
-currently learning math olympiad.
+hi im iceevee1008(IcEe)
